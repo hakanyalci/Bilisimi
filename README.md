@@ -1,0 +1,2 @@
+# Bilisimi
+Bilmiyorum 
